@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Script hidden offers the most advanced dig deeper for brainrots Script, with unlimited stamina and infinite resources.
 
 
 
